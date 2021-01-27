@@ -1,1 +1,0 @@
-# HaTaMaLa.github.io
